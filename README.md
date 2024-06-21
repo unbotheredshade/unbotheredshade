@@ -5,7 +5,7 @@
 - 📫 How to reach me my insta id is @krutika._.3127
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: commerce student with maths
-- defenitely a boring creature 
+- defenitely a boring creature with nothing special
 
 <!---
 unbotheredshade/unbotheredshade is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
